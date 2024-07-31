@@ -1,6 +1,10 @@
 # ipdma
 Perform two-stage inverse-variance individual participant data (IPD) meta-analysis Use ipd (ipdma) (bipd) With (In) R Software
 
+Link Download JAGS 4.3.1
+
+https://safefileku.com/download/RBsRbDqJqbX1w8jm
+
 Olah Data Semarang
 
 WA : +6285227746673 (085227746673)
