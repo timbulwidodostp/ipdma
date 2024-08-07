@@ -5,6 +5,8 @@ Link Download JAGS 4.3.1
 
 https://safefileku.com/download/RBsRbDqJqbX1w8jm
 
+https://www.youtube.com/watch?v=eZnX3J-RyJs
+
 Olah Data Semarang
 
 WA : +6285227746673 (085227746673)
